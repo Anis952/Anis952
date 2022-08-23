@@ -3,8 +3,8 @@
 
 
 
-- 🌱 I’m currently IT undergraduate student. 
-- Just a beginner trying to learn more and more.😇
+
+
 
 
 
